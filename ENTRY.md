@@ -1,0 +1,1 @@
+The Roomba chokes on a LEGO brick; the agent pauses risotto to burp the 'firstborn,' and the human just slides the pepper over.
